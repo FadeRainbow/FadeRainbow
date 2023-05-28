@@ -1,5 +1,5 @@
 ### Hi Keep Lovely!
-### Kotlin是世界上最好的语言~
+### 安卓需要咳特灵胶囊の力击败苹果
  **E-Mail:** [**`FadeRainbow@outlook.com`**](mailto:FadeRainbow@outlook.com)
  **QQ:** [**`863350375`**](tencent://message/?uin=863350375&Site=&Menu=yes)
 

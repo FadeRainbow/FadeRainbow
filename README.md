@@ -1,7 +1,8 @@
-### Hi Keep Lovely!
-### 安卓需要咳特灵胶囊の力击败苹果
+### Hi I am FadeRainbow
+
  **E-Mail:** [**`FadeRainbow@outlook.com`**](mailto:FadeRainbow@outlook.com)
  **QQ:** [**`863350375`**](tencent://message/?uin=863350375&Site=&Menu=yes)
+ **家乡** **`贵州省黔南州惠水县`**
 
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FadeRainbow&show_icons=true&theme=dracula)
